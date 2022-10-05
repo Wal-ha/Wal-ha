@@ -1,3 +1,2 @@
 # Wal-ha
- my nickname
-..
+25 / Seoul / Korean / Man
