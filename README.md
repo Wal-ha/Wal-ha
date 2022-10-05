@@ -1,2 +1,2 @@
 # Wal-ha
-24 / Seoul / Korea / Man
+24 / Seoul_Korea / Man
